@@ -2,7 +2,13 @@
 
 I have never been a good writer, and I never will be, unless of course I start to follow these seven tips that I noticed in my and others’ experiences as a writer. 
 
-1)Following the point 2)Deadlines  3)Rereading  4)How to accept criticism better 5)Don't forget the essentials 6)Paraphrasing and plagiarism 7)Search for your interest
+1. Following the point
+2. Deadlines
+3. Rereading
+4. How to accept criticism better
+5. Don't forget the essentials
+6. Paraphrasing and plagiarism
+7. Search for your interest
 
 But first, I will note that the word "good writer" for me means being able to grasp the attention and interest of readers. Of course, each of us has a piece of this talent that will grow with time and practice. And it is important to understand that without overcoming the barriers you face as a writer, it is impossible to achieve anything great through writing.
 
